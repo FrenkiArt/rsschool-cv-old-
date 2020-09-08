@@ -6,3 +6,4 @@
 * Skills: best person in the world ))
 * Education: self education
 * Englesh level: intermidiate, I can speak, write, listening.
+*
